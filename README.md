@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @preshdude
+- 👋 Hi, I’m precious Owah AKA preshdude
 - 👀 I’m interested in accounting, auditing, coding, transcribing, and content rating.
 - 🌱 I’m currently learning coding...
-- 💞️ I’m looking to collaborate on completion, launching, and marketing my new payment application.
+- 💞️ I’m looking to collaborate on the completion, launching, and marketing of my new payment application.
 - 📫 Reach me at maylaw9512@gmail.com or call 07061752167
 
 <!---
